@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AadhilNandan
+- 👀 I’m interested in coding
+- 🌱 I’m currently a 12th grader
+- 🏅 Still learning
