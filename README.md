@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AadhilNandan
 - 👀 I’m interested in coding
-- 🌱 I’m currently a 12th grader
+- 🌱 I’m currently a Jyothian.
 - 🏅 Still learning
